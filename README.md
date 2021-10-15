@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Mohamad Mohedin => @Mimo
+- 👋 Hi, I’m Mohamad Mohedin => @MimoMohi
 
 - 👀 I’m interested in IT and programming work field.
 
